@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi I'm Jeremiah 👋
+
+You can view my online portfolio and resume at [jeremiahsmith.dev](https://www.jeremiahsmith.dev) and my LinkedIn profile [here](linkedin.com/in/jeremiah-smith-4b946598/).
 
 <!--
 **psygypsie/psygypsie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
