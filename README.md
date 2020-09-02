@@ -1,8 +1,8 @@
 ### Hi I'm Jeremiah ✌️
 
 You can view my online portfolio and resume at [jeremiahsmith.dev](https://jeremiahsmith.dev) and my LinkedIn profile [here](https://www.linkedin.com/in/jeremiah-smith-4b946598/).
-
 Feel free to contact me at [jeremiah4smith@gmail.com](jeremiah4smith@gmail.com).
+Otherwise, enjoy my content :)
 
 🏕️.....🌴.....🚐.....🌲.....🌳
 
